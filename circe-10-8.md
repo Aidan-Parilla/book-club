@@ -146,6 +146,8 @@ Aidan doesn't really relate to child rearing..
 
 but ronan has really big boobs
 
+(EDIT) ronan double fisting a ladys boobs
+
 "Women are bisnatches" (ronan)
 
 "I said bisnatches. Its more polite"
