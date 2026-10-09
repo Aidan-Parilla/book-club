@@ -187,3 +187,11 @@ you asking for money are drug addicts'
 When landrie was in line at a concert (afterwards to sign her stuff) landries mom annd sister
 said there were two people opening the door for you but they would only let you in if you
 give them a dollar
+
+## Last thoughts
+
+Ronan just joined a rock climbing gym
+
+Landrie asks ronan if he shoves his feet in those tiny little grooves
+
+Ronan doesn't like doing it alone though
