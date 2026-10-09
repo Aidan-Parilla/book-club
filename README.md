@@ -4,7 +4,7 @@ Members: i forgot
 
 ## Circe notes
 
-![circe](circe.png)
+![circe](circe.jpg)
 
 **Schedule**: Finish the book for 10-22, the date of the third session
 
