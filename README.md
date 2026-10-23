@@ -1,6 +1,6 @@
 # The book club
 
-Members: i forgot
+Members: all of us
 
 ## Circe notes
 
@@ -20,4 +20,8 @@ Just had to throw these in there
 
 [Aidan's YCSE notes](you-can-see-everything/ycse-notes.md)
 
+## Hitchhiker's Guide to the Galaxy
 
+![hitchhikers](hitchhikers.jpg)
+
+**Schedule**: Read some amount of the book for 11-5, the next session
