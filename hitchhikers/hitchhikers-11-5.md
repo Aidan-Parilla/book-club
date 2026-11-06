@@ -112,3 +112,9 @@ Adams has been compared with lewis carol and johnathan swift
 ## Okay time for some bullshit
 
 Nat wants to watch idiocracy? Probably related to this book
+
+Lynching people? they just like humans for real - landrie
+
+"nat you can't get upset with me because I said you couldn't get upset with me"
+
+"Its set in space.. soo... (big indignant eyes)" - Landrie
